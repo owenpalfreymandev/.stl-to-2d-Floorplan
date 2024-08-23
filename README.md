@@ -1,0 +1,1 @@
+Basically, I wanted to make money in Replit by doing bounties but I didn't apply for one in time that I made so here it is. It works. I could've made $67.50 USD but I didn't so here is $67.50 USD of work for free:)
